@@ -18,9 +18,9 @@ Are you a forward-thinking company ready to automate and optimize your processes
 
 We've already made our mark by significantly enhancing productivity for our clients. Our track record is a testament to our dedication and expertise.
 
-## Located in Brussels, Ready to Serve the World
+## Serving the World, Wherever You Are
 
-Based in the vibrant city of Brussels, Lumina is strategically positioned to cater to clients both locally and internationally.
+Lumina operates without the constraints of a physical office, allowing us to serve clients worldwide from anywhere. 
 
 ## Join Us on the Path to Progress
 
